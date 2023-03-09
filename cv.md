@@ -6,7 +6,7 @@
 - __Phone number:__ +7 938 203-77-72 / +7 928 937-03-32 
 - __Telegram:__ [thheakihiro](https://t.me/theakihiro) / [exterminator](https://t.me/exterminatoraki) 
 - __GitHub:__ [akicool](https://github.com/akicool)
-- - __E-Mail:__ [davyd7337](davyd7337@gmail.com)
+- __E-Mail:__ [davyd7337](davyd7337@gmail.com)
 
 # __About Me__
 
